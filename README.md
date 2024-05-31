@@ -5,7 +5,7 @@
 ## 👇🏽 About Me
 - **Pronouns:** He/Him
 - **Facts:** In my free time, I enjoy reading philosophy and other non-fiction books.
-- **Languges:** I can hold conversations in english as I live abroad for a time.
+- **Languges:** I am fluent in English and can hold conversations comfortably, as I lived abroad for a while.
 
 ## 📫 How to Reach Me
 - [LinkedIn](https://www.linkedin.com/in/alessandropaucar)
